@@ -38,6 +38,7 @@
 > Que planes sociales deben mantenerse, re-enforzarse, eliminarse
 
  - Revisión de presupuestos para la educacion a todos los niveles.
+ - Integración Nacional: que los principales atributos nacionales (ingreso per cápita, nivel de educación, esperanza de vida, entre otros) se produzcan de forma similar, independientemente del lugar (regiones, provincias, distritos). Así reducir el flujo de migración hacia la región metropolitana.
  
 ## Acciones/Cambios Judiciales
  - Investigación sobre nacionalidad de Nicolas Maduro (destituirlo sin necesidad de revocatorio)
